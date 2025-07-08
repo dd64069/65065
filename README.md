@@ -20,4 +20,4 @@
 温馨提示：本站所有内容仅供成年用户浏览与参考，资源来源于网络公开信息，不做存储与传播。请遵守您所在地的法律法规，合理使用本平台。我们将持续更新内容，优化体验，为您提供一个真正值得信赖的日本AV免费在线观看平台。
 
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/dd64069/65065 ）</span>
